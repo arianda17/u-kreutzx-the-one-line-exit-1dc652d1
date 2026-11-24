@@ -1,0 +1,1 @@
+I resign effective at the end of this sentence; my one-sentence two weeks' notice starts now and ends with this period.
